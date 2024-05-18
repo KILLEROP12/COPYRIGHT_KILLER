@@ -4,7 +4,7 @@
  <img src="https://readme-typing-svg.herokuapp.com?color=FF00FF&width=420&lines=💈+🄲🄾🄿🅈🅁🄸🄶🄷🅃+🅂🄷🄸🄴🄻🄳+🄱🄾🅃+💈">
 
 
-**💮 ᴛᴇxᴛ ʙᴏᴛ ➠ [ 🄲🄾🄿🅈🅁🄸🄶🄷🅃 🅂🄷🄸🄴🄻🄳 🄱🄾🅃 ](https://t.me/copyrightshieldbot)**
+**💮 ᴛᴇxᴛ ʙᴏᴛ ➠ [ 🄲🄾🄿🅈🅁🄸🄶🄷🅃 🅂🄷🄸🄴🄻🄳 🄱🄾🅃 ](https://t.me/KILLER_OP_12)**
 
 
 </h2>
